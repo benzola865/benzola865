@@ -26,4 +26,4 @@ University of Oxford: Master of Arts (MA), BA, PPE (Politics, Philosophy & Econo
 SOAS University of London: Master of Arts (M.A.), Japanese Studies
 Certifications: Fellow of The RSA (FRSA), YouTube Certified (Digital Rights & Audience Growth), Google AdWords Certification.
 🔗 Media Nodes
-Tokyo Years Archival Video: YouTube Link
+Tokyo Years Archival Video: [YouTube Link](https://youtu.be/w5MQV8aoo_4?si=doD-rjIawe9BYMAP)
